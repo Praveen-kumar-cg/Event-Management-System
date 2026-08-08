@@ -7,3 +7,4 @@ left side man
 right side human
 
 singer on stage
+
