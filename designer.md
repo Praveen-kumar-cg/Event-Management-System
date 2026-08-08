@@ -1,4 +1,4 @@
-# Rules for standing
+# sitting arrangement
 
 toward side childrens 
 
